@@ -6,7 +6,7 @@ If you want to use our cheats, [click here](https://github.com/Blooketware/Blook
 
 If you are Ben and you are reading this, *hacks go brrr*
 
-@ZammyDog is Ben's GitHub btw go bully him there
+[@ZammyDog](https://github.com/ZammyDog) is Ben's GitHub btw go bully him there
 
 <!--
 
