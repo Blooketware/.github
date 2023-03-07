@@ -8,6 +8,8 @@ If you are Ben and you are reading this, *hacks go brrr*
 
 [@ZammyDog](https://github.com/ZammyDog) is Ben's GitHub btw go bully him there
 
+[![Join us on Discord](https://invidget.switchblade.xyz/3kh0?theme=dark)](https://discord.gg/3kh0)
+
 <!--
 
 **Here are some ideas to get you started:**
